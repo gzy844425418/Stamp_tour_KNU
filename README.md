@@ -1,1 +1,0 @@
-# Stamp_tour_KNU
